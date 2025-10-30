@@ -5,7 +5,5 @@
 綺麗に巻けよォ？
 オレのソフト･･･♡
 
-
-Uploading C04BE422-1DFC-439B-AA21-B655BC11620E0910_044602.mov…
-
+https://github.com/user-attachments/assets/d003a26a-1a3b-4d6a-997c-1f6b2a5f390d
 
