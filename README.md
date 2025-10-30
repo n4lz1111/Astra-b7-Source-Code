@@ -4,4 +4,8 @@
 ンホォオ～･･･ッ
 綺麗に巻けよォ？
 オレのソフト･･･♡
-https://files.catbox.moe/gjzu6g.mov
+
+
+Uploading C04BE422-1DFC-439B-AA21-B655BC11620E0910_044602.mov…
+
+
